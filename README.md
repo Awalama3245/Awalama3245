@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Alhassan Mohammed Awal
-- 👀 I’m interested in Language Activism and Education. I use Wikipedia to aid my language activism work. I have Co-founded a lanaguage User Group in Ghana known as the Dagbani Wikimedians User Group ( [[dag.wikipedia.org]] ) 
+- 👀 I’m interested in Language Activism and Education. I use Wikipedia to aid my language activism work. I have Co-founded a lanaguage User Group in Ghana known as the Dagbani Wikimedians User Group (https://dag.wikipedia.org ) 
 - 🌱 I’m currently learning to digitize the Dagbani Language on Wikipedia and other digital platforms
 - 💞️ I’m looking to collaborate on any language preservation activity 
 - 📫 How to reach me; Email: alhassanawal77@gmail.com Phone number: +233249182899
